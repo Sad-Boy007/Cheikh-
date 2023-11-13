@@ -1,2 +1,3 @@
-# Cheikh-
+Cheikh-
 Bamba
+Sekou
